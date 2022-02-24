@@ -1,3 +1,3 @@
-stay positive no matter what
+Stay positive no matter what
 life is sweet
 
